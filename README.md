@@ -1,2 +1,2 @@
-## helo i was just born into this world what isthis am i doing this rigt 
+## n1 prideduo supporter (✿◠ᴗ◠)
 ![Banner Image](https://media1.tenor.com/m/F_UrzUTynlwAAAAC/planetlord-minecraft.gif)
