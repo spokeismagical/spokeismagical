@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-![Banner Image](https://i.pinimg.com/736x/6b/e9/1b/6be91b6454141067d4b50eacc30448ff.jpg)
+![Banner Image]([url=https://ibb.co/WWsTS8F0][img]https://i.ibb.co/BVw18WjG/Ba-l-ks-z204-20260307181203.png[/img][/url])
