@@ -1,5 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&pause=1000&color=9E8AF7&width=435&lines=Im+a+lover+not+a+fighter+bro!+(%E2%9C%BF%E2%97%A0%E1%B4%97%E2%97%A0))](https://git.io/typing-svg)
-##  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀     
 ![Banner Image](https://media.tenor.com/GcoWPq-7AkkAAAAi/divider-rainbow.gif)
 ## ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
 ![](https://komarev.com/ghpvc/?username=PLANETL0RD&label=.✦―+&color=263ea6)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fuzzy+Bubbles&duration=2000&pause=300&color=F7F7F7&width=435&lines=Every+week+is+fashion+week+for+me!+%5E_%5E;I+just+went+to+barneys%2C%2C;spent+your+whole+years+salary!;I+never+wore+yeezys+thats+a+fact!!)](https://git.io/typing-svg)
